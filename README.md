@@ -1,2 +1,0 @@
-# Hiddensatya
-Explore the truth
